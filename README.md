@@ -1,2 +1,3 @@
-    iam a problem solver and keen to learn new things
+    iam a problem solver and keen to learn new thing 
+    thank you!
     
